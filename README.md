@@ -1,4 +1,4 @@
-# not-eating-chicken
+# The only tribe on Earth that doesn't eat chicken
 
 
 Before this, I had never imagined that deep within the dense rainforests south of the equator, the collision between modern civilization and primitive beliefs would present itself in such an absurd yet harmonious manner.
