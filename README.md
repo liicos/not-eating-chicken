@@ -1,8 +1,5 @@
 # not-eating-chicken
 
-Here is the English translation of the article. I have aimed to preserve the narrative tone, the slight touch of surrealism, and the journalistic style of the original text.
-
-***
 
 Before this, I had never imagined that deep within the dense rainforests south of the equator, the collision between modern civilization and primitive beliefs would present itself in such an absurd yet harmonious manner.
 
